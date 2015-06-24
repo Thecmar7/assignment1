@@ -22,3 +22,7 @@ really enjoyed it, until I was rejected from the CS program there. So now I am a
 loving it. I am excited to get into the field of computer science I am in love with it even
 though I am sometimes not the best at programming. But really that is why I am here! I want
 to learn.
+
+#THIS BIO WILL REIGN SUPREEM! 
+
+#I WILL MAKE THIS THE BEST BIO! 
