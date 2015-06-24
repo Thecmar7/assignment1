@@ -9,4 +9,8 @@ My hobbies include running, playing (or some times making) videogames, and readi
 #I Cannot Cook
 I like to think I am good at cooking, but I am not.
 
+#I Like Cats
+I had a cat when I was 7 I named her Kissy cause she would lick people. She died when I was 
+18. She had a long and happy life. I miss her.
+
 #Programming Experience
